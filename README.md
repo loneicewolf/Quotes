@@ -5,6 +5,10 @@
 
 ***
 
+> each time you understand something new, something you didn't understand before, will make you have more questions 
+> Climbing a mountain, when you climb it and is on the top of a mountain, you see bigger mountains
+
+
 - quote related to (?): "When you least expect it, it all might just disappear. Try - try to live life as you want. :')" - Unknown person
 
 - quote related to life: "If you worry about something, whatever it might be - and you are unable to change any of the sequence of chains of events that worries you - Do yourself a favor and try to stop worrying. If you cannot do something to change it, there is no point in worrying. If you can change the events/or whatever it might be (that worries you) - then go and change them, instead of worrying."
