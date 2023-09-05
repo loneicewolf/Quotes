@@ -4,6 +4,7 @@
 
 ⭐
 - "Those who do the right thing, most often is disliked. It's a sad truth."
+- "I try my very best, yet it's somehow not enough"
 
 ***
 
