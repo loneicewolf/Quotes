@@ -1,6 +1,12 @@
 <details><summary> QUOTES </summary>
 
 
+
+⭐
+- "Those who do the right thing, most often is disliked. It's a sad truth."
+
+***
+
 - "Those who care without reason, worry without being asked to, and bring smile with just their presence, are the ones who people can learn from" -M
 
 ***
