@@ -4,6 +4,9 @@ I'll introduce this with a powerful quote:
 - "I don't know"
 
 
+a quote from a friend
+- "the world should rethink how things work"
+
 
 ⭐
 - "Those who do the right thing, most often is disliked. It's a sad truth."
