@@ -3,6 +3,8 @@
 I'll introduce this with a powerful quote:
 - "I don't know"
 
+- "Life is about smashing trough every problem that appear! And to be unstoppable!"
+- "Sometimes breaks is needed"
 
 a quote from a friend
 - "the world should rethink how things work"
